@@ -1,1 +1,0 @@
-# test_arq6lm3a
